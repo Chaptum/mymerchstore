@@ -1,0 +1,5 @@
+================
+COPYRIGHT
+================
+
+CODED BY iCupta
